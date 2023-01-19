@@ -18,7 +18,7 @@ Things about me:
 `clue - shy rin siya`
 - Was LGs 7-Realino & 8-Carvalho
 - Maingay online pero quiet sa totoong buhay
-- No. 1 pag dating kay krashie
+- No. 1 detective pag dating kay krashie
 
  ----------------------------
 
