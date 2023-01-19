@@ -12,4 +12,6 @@ Things about me:
 - Friendly but shy
 - Umaasa na maging kami ni idol
 `clue - shy rin siya`
-- 
+- Was LGs 7-Realino & 8-Carvalho
+ 
+ ----------------------------
